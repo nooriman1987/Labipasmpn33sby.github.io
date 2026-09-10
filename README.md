@@ -1,2 +1,2 @@
-# Labipasmpn33sby
+# Labipasmpn33sby.github.io
 LAB IPA
